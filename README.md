@@ -9,5 +9,5 @@ Une fois le launcher ouvert, entre la clé d’activation suivante :
 
 Copier
 Modifier
-25ddf552dsf5ds2fsd6f2525dsf56
+****************************************
 Valide et profite de Photoshop 2023 !
